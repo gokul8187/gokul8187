@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on exciting AI and Data Science projects.
 - 📫 How to reach me [gokulb8187@gmail.com][www.linkedin.com/in/gokulb24]
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: lost 23kg through fitness and consistency, and I believe that discipline applies to learning AI too!
+- ⚡ Fun fact: "💔 Never breaking up with my gym 💪🏋️‍♂️"
 
 <!---
 gokul8187/gokul8187 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
